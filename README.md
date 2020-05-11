@@ -12,3 +12,7 @@ It is the flu that causes several symptoms in the person through which they can 
 Safety from Coronavirus
 
 The safety from coronavirus can also be maintained by maintaining the social distance from the people. Wash the hands more frequently and people should avoid touching their faces. The people have to keep the distance from the people who are unwell such as 1 meter or 3 feet distance should be maintained. The people should stay home more as they can so that they could prevent the coronavirus.
+
+Impact from Coronavirus
+
+Coronavirus has a great impact on the economy of the country as it brings the slow down to the economy and causes much harm to the growth of the country. The countries are getting into the recession through the coronavirus, the share marketing is declining and there is a loss in the global income of the country. The economy is getting worst as the global supply chain is declining and people are also facing many other issues.
